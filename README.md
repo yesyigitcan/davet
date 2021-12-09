@@ -44,4 +44,4 @@ umarim bu aciklama yeterli olmustur ;) sitem etmenize gerek yok, eglenmeye calis
 sevgiler,
 ```
 
-<!--- al sana davet linki uggcf://qvfpbeq.tt/qiCxZCc6Di --->
+<!--- aradigin bu olabilir mi ?== Rz0n5nt0FR --->
