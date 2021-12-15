@@ -44,7 +44,8 @@ banlanmadiginiz surece girebilirsiniz.
 twitch de yayina gelebilirsiniz (insta veya twitter dan duyuruyorum yayinlari) 
 orada moderator arkadaslara DM atabilirsiniz, kendileri size yardimci olur.
 
-10) sunucudan haksiz yere banlandim, ne bicim modlariniz var, simdi hemen twitter da, instagram da sana mesaj aticam, olmadi mail aticam, dov o modlari benim icin...
+10) sunucudan haksiz yere banlandim, ne bicim modlariniz var, simdi hemen twitter da, 
+instagram da sana mesaj aticam, olmadi mail aticam, dov o modlari benim icin...
 ------------------------------
 tamam. ama sonuc genelde degismez, bir yanlislik varsa yayina gel modlara DM at, sunucuyu ben yonetmiyorum.
 
